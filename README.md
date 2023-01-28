@@ -1,0 +1,2 @@
+# ReciclaSenac-Ionic-main
+ 
